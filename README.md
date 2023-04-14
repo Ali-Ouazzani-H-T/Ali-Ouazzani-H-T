@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Blockchain Technology<br>👯 I’m looking to collaborate on projects as a Web designer<br>📫 Shot me an Email or add me on LinkedIn
+🌱 I’m currently learning Blockchain Technology<br>👯 I’m looking to collaborate on projects as a Web developer<br>📫 Shot me an Email or add me on LinkedIn
 
 
 ## 🌐 Socials:
